@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on any interesting projects
 - 📫 How to reach me +254740833769
-- 😄 Pronouns: Him, Tho One😂
+- 😄 Pronouns: Him, The One😂
 - ⚡ Fun fact: Did yk am fun to talk to?😂😂
 
 <!---
